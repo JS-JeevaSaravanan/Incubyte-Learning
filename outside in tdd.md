@@ -4,3 +4,8 @@ https://outsidein.dev/concepts/outside-in-tdd/
 
 
 
+https://youtu.be/_o9ZtQmTDog?feature=shared
+
+
+
+
